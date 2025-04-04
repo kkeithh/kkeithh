@@ -1,6 +1,5 @@
-![bits-8bits](https://github.com/user-attachments/assets/523526ba-2c6d-4ecd-a355-283ab2dcb415)  
+![b04e29b66019abd743c6f558256705d0](https://github.com/user-attachments/assets/2522ef24-ea32-4d89-ac74-f41af7fb64a8)
 
-![Untitled6_20250309081247](https://github.com/user-attachments/assets/c6df2231-48d4-48f5-bb6d-bd563158c6fb)
 
 
 
