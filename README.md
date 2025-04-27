@@ -1,5 +1,5 @@
-                                    me and mei as miku and tetooo1!!!
-![Screenshot 2025-04-20 12 31 11 PM](https://github.com/user-attachments/assets/408111bf-9a17-4616-a453-e6cb47ee81ef)
+                       if u get uncomf with flirting / don't like/take mean jokes srs, pls tell me, i flirt often as a joke and make mean jokes !
+![8499c5d13cb8673cffbd114c52466084](https://github.com/user-attachments/assets/4e61dd38-4205-466c-a8a0-8c132d0c73cc)
 
 
 
